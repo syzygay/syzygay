@@ -1,6 +1,3 @@
-fuckers took @syzygy cant have shit online
+call me syzygy
 
-<!---
-syzygay/syzygay is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+@syzygy42069 or @syzygay on most platforms because @syzygy is always fucking taken
